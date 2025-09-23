@@ -34,5 +34,5 @@ Gracias por visitar, ¡espero que encuentres algo interesante!
 
 ---
 
-> *"Automatizo lo que puedo, improviso lo que no, y si falla… lo convierto en feature 🤙."*
+> *"Automatizo lo que puedo, improviso lo que no, y si falla… lo convierto en un logro 🤙."*
 
